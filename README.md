@@ -1,6 +1,6 @@
 Hey, I'm the founder of [Metadash](https://metadashapp.com).
 
-Previously I was at [Better.com](https://better.com) and [Glean AI](https://glean.ai).
+Previously I was early at [Better.com](https://better.com).
 
 My interests include design, tech, and startups.
 
